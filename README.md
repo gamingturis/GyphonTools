@@ -1,2 +1,2 @@
-# GyphonTools
-This Gryhpn Tools
+Gryphon Exploit
+https://discord.gg/aVMGSKNpRP
